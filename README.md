@@ -1,6 +1,8 @@
 Welcome to Chuks Izu page
 
-Name: Izu chuks
+
+
+Name: Izu Chuks Anderson
 
 Email: chukeng2001@gmail.com
 
